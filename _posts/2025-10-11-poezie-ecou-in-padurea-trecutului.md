@@ -10,7 +10,16 @@ tags:
   - romana
 ---
 
-Prima mea poezie, combină două teme care îmi creează emoții puternice: pădurea și copilăria.
+Pentru mine, o zi fără o vizită în pădure nu este o zi completă.
+De aceea, acum câteva zile, am decis să încerc să aștern în versuri ceea ce simt acolo, printre copaci.
+Nu a trecut mult, și – după cum vei vedea două strofe mai jos – am fost purtat înapoi la Câmpulung, orașul meu natal,
+cu cântecul guguștiucilor și tărăboiul vrăbiuțelor. Apoi, „condeiul” m-a dus automat la Stoenești,
+unde am petrecut momente frumoase ale copilăriei mele, toate strâns legate de natură și de „afară”.
+
+Fiecare strofă a deschis câte o fereastră spre nostalgia vremurilor apuse
+– un ecou al sufletului stârnit din inima pădurii și a naturii.
+
+Te invit să te alături acestei călătorii printre amintiri și frunze, în prima mea poezie:
 
 ### Ecou în pădurea trecutului
 
@@ -63,7 +72,7 @@ Apoi, plăceri râvnite...
 Cartofii încinși pe plită,
 Miroase a cărbune,
 Miroase-a vechi în tindă,
-Adio parcă spune.
+Adio! parcă spune.
 
 S-a dus copilăria,
 Ce repede se trece...
