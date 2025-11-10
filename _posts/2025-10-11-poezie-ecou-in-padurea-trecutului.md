@@ -43,7 +43,7 @@ O, ce fior mă trece.
 Și iarna..., cu zapadă,
 Cu plugușoru-n gură,
 Nămeții de pe stradă,
-Și fumul de la vatră. 
+Și fumul peste șură. 
 
 Pompa, e gheață tun,
 Curtea, un derdeluș,
