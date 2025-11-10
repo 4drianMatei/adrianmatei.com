@@ -67,6 +67,6 @@ Adio parcă spune.
 
 S-a dus copilăria,
 Ce repede se trece...
-Veni melancolia,
+Reveni nostalgia,
 Cu farmecul ei rece.
 ```
